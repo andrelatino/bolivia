@@ -1,0 +1,2 @@
+# bolivia
+IA Blog
